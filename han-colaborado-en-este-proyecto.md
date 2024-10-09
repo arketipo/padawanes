@@ -7,7 +7,7 @@ Añádete tu mismo/a
 * [https://www.linkedin.com/in/qmarcos/](https://www.linkedin.com/in/qmarcos/)
 * [https://www.linkedin.com/in/raulredondo/](https://www.linkedin.com/in/raulredondo/)
 * [https://www.linkedin.com/in/asotoca/](https://www.linkedin.com/in/asotoca/)
-* [https://twitter.com/vff1991](https://twitter.com/vff1991)
+* [https://www.linkedin.com/in/victor-fernandez-fernandez/](https://www.linkedin.com/in/victor-fernandez-fernandez/)
 * [https://www.linkedin.com/in/nataliaromero/](https://www.linkedin.com/in/nataliaromero/)
 * [https://www.linkedin.com/in/flabernardez/](https://www.linkedin.com/in/flabernardez/)
 * [https://www.linkedin.com/in/miguelolivamarquez/](https://www.linkedin.com/in/miguelolivamarquez/)
